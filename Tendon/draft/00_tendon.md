@@ -1,4 +1,8 @@
 https://www.dimmakherbs.com/product/tendon-mending-pills-tendon-ligament-healing/
+
+https://www.dimmakherbs.com/product/ageless-sinew-herbs-or-liminent/
+
+
 Tendon Mending Pills- Tendon & Ligament Healing
 Tendon Mending Pills join the line-up of our potent healing herbal remedies for faster recovery. These pills are geared for ligament and/or tendon healing, nourishment and strengthening in faster time. Tendon Mending Pills are useful for tendon injuries recovery, healing damage, tendon healing, ligament healing, and tear recovery. Our pills have been tested and proven effective in all kinds of injuries and sports accidents including: achilles tendon injuries, knee ligament damage, rotator cuff injuries and tears, elbow tendinitis, post ankle sprains and much more.
 
